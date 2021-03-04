@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 
 - 
 -->
+
+- I am jack of all trades.
+- I dont have any specialization but I know and learn most all the things.
